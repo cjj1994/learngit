@@ -1,1 +1,1 @@
-Git is a stupid tools
+Git is a stupid tools wtf you?
